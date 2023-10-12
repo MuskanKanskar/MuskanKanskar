@@ -1,5 +1,5 @@
 -👋 Hi, I’m @MuskanKanskar
-- 👀 I’m interested in working as data entry operator and I am also interested in working tally prime 
+- 👀 I’m interested in working as data entry operator, typing works and I am also interested in working tally prime 
 - 🌱 I’m currently learning tally prime with gst
 - 💞️ I’m looking to collaborate on the works mentioned above 
 - 📫 How to reach me... you can reach me through my GitHub I'd or through the email muskankanskar47119@gmail.com
